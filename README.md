@@ -1,4 +1,3 @@
 # swiggy_Mysql_advance
 
-![Uploading image.png…]()
-
+https://i.ytimg.com/vi/6GqSmH59beg/maxresdefault.jpg
